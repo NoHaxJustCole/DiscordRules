@@ -1,2 +1,2 @@
 # Rules1
-Rules1
+Be nice and kind
