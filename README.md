@@ -3,4 +3,5 @@
 2. Don't swear
 3. Don't be racist
 4. Don't troll
-5. Have Fun!
+5. Go into the correct server
+6. Have Fun!
